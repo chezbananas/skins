@@ -2,7 +2,7 @@
 
 # Click on the Skin's name to download:
 
-# [RyuK11/15](https://puu.sh/C2vu7/04936abe9e.osk)
+# [RyuK 11/15](https://puu.sh/C2vu7/04936abe9e.osk)
 ![](https://osu.ppy.sh/ss/12149429)
 
 # [404ANF 11/11](https://puu.sh/C04ZE/0959960151.osk)
