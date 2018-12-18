@@ -1,4 +1,5 @@
-# hide multi placement(https://i.imgur.com/DzARxDy.png)
+# [hide multi placement key overlay](https://i.imgur.com/DzARxDy.png)
+
 # main skins
 
 
