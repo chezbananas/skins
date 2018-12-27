@@ -5,6 +5,9 @@
 
 # Click on the Skin's name to download:
 
+# [idk generic shige skin 12/26](https://puu.sh/CnHZW/1599b32a33.osk)
+![](https://osu.ppy.sh/ss/12391557)
+
 # [RyuK 11/15](https://puu.sh/C2vu7/04936abe9e.osk)
 ![](https://osu.ppy.sh/ss/12149429)
 
