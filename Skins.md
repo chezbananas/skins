@@ -1,9 +1,14 @@
-# [hide multi placement key overlay](https://i.imgur.com/DzARxDy.png)
+# [key overlay to hide multi placement](https://i.imgur.com/DzARxDy.png)
 
 # main skins
 
-
 # Click on the Skin's name to download:
+
+# [Umbre+Vaxei 1/6](https://puu.sh/CsH0m/da2ec61150.osk)
+![](https://osu.ppy.sh/ss/12457820)
+
+# [idke 1.1 edit 1/6](https://puu.sh/CsH8l/fae9db77fe.osk)
+![](https://osu.ppy.sh/ss/12457853)
 
 # [idk generic shige skin 12/26](https://puu.sh/CnHZW/1599b32a33.osk)
 ![](https://osu.ppy.sh/ss/12391557)
