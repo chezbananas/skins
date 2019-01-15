@@ -5,7 +5,8 @@
 # Click on the Skin's name to download:
 
 
-# [Umbre+Vaxei 1/6](https://puu.sh/CsH0m/da2ec61150.osk) [ar8 version](https://puu.sh/CxegK/46274a4d79.osk)
+# [Umbre+Vaxei 1/6](https://puu.sh/CsH0m/da2ec61150.osk) 
+# [ar8 version](https://puu.sh/CxegK/46274a4d79.osk)
 ![](https://osu.ppy.sh/ss/12457820)
 
 # [idke 1.1 edit 1/6](https://puu.sh/CsH8l/fae9db77fe.osk)
