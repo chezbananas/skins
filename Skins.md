@@ -7,6 +7,9 @@
 # Click on the Skin's name to download:
 
 
+# [BubbleEdit 1/17](https://puu.sh/CyphI/03650d86de.osk)
+![](https://osu.ppy.sh/ss/12523906)
+
 # [Umbre+Vaxei 1/6](https://puu.sh/CsH0m/da2ec61150.osk) 
 # [ar8 version](https://puu.sh/CxegK/46274a4d79.osk)
 ![](https://osu.ppy.sh/ss/12457820)
