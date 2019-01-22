@@ -9,6 +9,7 @@
 
 # [BubbleEdit with another overlay & cursor 1/21](https://puu.sh/CAqLI/1144f6db89.osk)
 ![](https://osu.ppy.sh/ss/12549185)
+###### Used in bean'd GF
 
 # [BubbleEdit 1/17](https://puu.sh/CyphI/03650d86de.osk)
 ![](https://osu.ppy.sh/ss/12523906)
@@ -16,6 +17,7 @@
 # [Umbre+Vaxei 1/6](https://puu.sh/CsH0m/da2ec61150.osk) 
 # [ar8 version](https://puu.sh/CxegK/46274a4d79.osk)
 ![](https://osu.ppy.sh/ss/12457820)
+###### Used in bean'd SF and QF
 
 # [idke 1.1 edit 1/6](https://puu.sh/CsH8l/fae9db77fe.osk)
 ![](https://osu.ppy.sh/ss/12457853)
