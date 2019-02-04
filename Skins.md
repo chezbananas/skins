@@ -8,10 +8,11 @@
 
 # [OldBubbleButBetter 2/3](https://www.dropbox.com/s/o0c2khlz2dowpq1/BubbleButBetter.osk?dl=0)
 add screenshot maybe lol
+###### Used in: OTT Group Stage, Speed Cup RO24
 
 # [BubbleEdit with another overlay & cursor 1/21](https://puu.sh/CAqLI/1144f6db89.osk)
 ![](https://osu.ppy.sh/ss/12549185)
-###### Used in bean'd GF
+###### Used in: bean'd GF
 
 # [BubbleEdit 1/17](https://puu.sh/CyphI/03650d86de.osk)
 ![](https://osu.ppy.sh/ss/12523906)
