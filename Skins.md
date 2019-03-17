@@ -6,6 +6,9 @@
 
 # Click on the Skin's name to download:
 
+# [BubbleNewRemake 3/16](https://chezbananas.s-ul.eu/A6aBX8BL)
+![](https://osu.ppy.sh/ss/12881136)
+
 # [OldBubbleButBetter 2/3](https://www.dropbox.com/s/o0c2khlz2dowpq1/BubbleButBetter.osk?dl=0)
 add screenshot maybe lol
 ###### Used in: OTT Group Stage, Speed Cup RO24
