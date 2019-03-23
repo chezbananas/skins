@@ -6,6 +6,9 @@
 
 # Click on the Skin's name to download:
 
+# [SeoulAR8 3/23](https://chezbananas.s-ul.eu/5CaI6yVX)
+make this a nomod skin by taking away followpoints and changing the 300s 
+
 # [BubbleNewRemake 3/16](https://chezbananas.s-ul.eu/A6aBX8BL)
 ![](https://osu.ppy.sh/ss/12881136)
 
