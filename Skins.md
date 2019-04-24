@@ -5,7 +5,7 @@
 
 
 # Click on the Skin's name to download:
-#[EZREAD 4/24](https://chezbananas.s-ul.eu/gSTdfOVm)
+# [EZREAD 4/24](https://chezbananas.s-ul.eu/gSTdfOVm)
 screenshot later
 
 # [BubbleFull 4/24](https://chezbananas.s-ul.eu/WIGdHlf3)
