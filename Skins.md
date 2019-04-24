@@ -1,10 +1,15 @@
 # Important Things
 
-# [key overlay to hide multi placement](https://i.imgur.com/DzARxDy.png)
+[key overlay to hide multi placement](https://i.imgur.com/DzARxDy.png)
 
 
 
 # Click on the Skin's name to download:
+#[EZREAD 4/24](https://chezbananas.s-ul.eu/gSTdfOVm)
+screenshot later
+
+# [BubbleFull 4/24](https://chezbananas.s-ul.eu/WIGdHlf3)
+![](https://osu.ppy.sh/ss/13093573)
 
 # [SeoulAR8 3/23](https://chezbananas.s-ul.eu/5CaI6yVX)
 make this a nomod skin by taking away followpoints and changing the 300s 
