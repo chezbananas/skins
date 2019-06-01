@@ -6,6 +6,9 @@
 
 # Click on the Skin's name to download:
 
+# [idke 1.2 edit 6/1/19](https://chezbananas.s-ul.eu/EJ7V93cc)
+screenshot never
+
 # [some idke edit 5/28](https://chezbananas.s-ul.eu/E7S1aymQ)
 screenshot never
 # [EZREAD 4/24](https://chezbananas.s-ul.eu/gSTdfOVm)
