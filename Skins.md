@@ -6,6 +6,8 @@
 
 # Click on the Skin's name to download:
 
+# [thaibuy edit 9/15/19](https://chezbananas.s-ul.eu/qHarVFFb)
+
 # [idke 1.2 edit 6/1/19](https://chezbananas.s-ul.eu/EJ7V93cc)
 screenshot never
 
